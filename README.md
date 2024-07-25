@@ -30,7 +30,7 @@ He tells us about the facilities of college. Example-well equipped hostels,a mod
 
 ## Day-3 Date-12.07,2024
 
-**On the day third we attend class.**
+**On the day third, we attend class.**
 
 * MATH
   
@@ -55,15 +55,56 @@ He gave us very motivational lecture. He said that we have to give our 100% to o
 He told us about the stratergy of being sucessful in life "1 2 ka 4". He told us to shape yourself according to situation. He advised us focusing on one task at a time for the best results. he also advised us to read good books. he told us that everyday is our birthday because  everyday is a first day of our rest life. He told us three things to remember always
 
 1. give your 100% to your every task or work.
-
 2. Do what you love and love what you do.
 
 3. should have efficiency and compatibility.
 
 * **Fourth speaker of the day: Mr. Pancham Jai Singh**
 
-He was the best shooter of our college in NCC. He taught us about body language, non-verbal communication and behavior. His inactivate style made learning engaging and practical helping us  better understanding non-verbal cues and improve our interpersonal skills. 
+He was the best shooter of our college in NCC. He taught us about body language, non-verbal communication and behavior. His inactivate style made learning engaging and practical helping us  better understanding non-verbal cues and improve our interpersonal skills. He also shared inspiring stories and lessons from his leadership experiences in various societies. He introduce us to the SAE compitition and told about benifits of joining.
 
+## Day-5 Date-16.07,2024
+On the day-5 we participated in English activities and competitions. we learn many new things from this activities.it boosted my confidence.we were aslo came to know about English club of our college. Whole activity was very interesting and useful for us.
+
+## Day-6 Date-17.07,2024
+
+**On the day sixth, we attend class.**
+
+* MATH
+  
+Our Math class was taken by RB. We learned and practice integration.that lecture was very interesting.
+
+* UHV
+
+Our second UHV class was taken by JK. We complete ch-2 in this lecture. We learned about self and body, need of self and body in that lecture.
+
+## Day-7 Date-18.07,2024
+
+**On the day sixth, we attend class first.**
+
+* Peer intraction
+  
+Our Peer intraction class was taken by our seniors. They guide us. they taught us how to calculate CGP,how to make library card, Bus pass etc.we feel very good after intraction with our seniors.
+
+* math
+
+Our math class was taken by SKG. We practice integration byparts and partial fraction. We practiced variety of problems in each topic.
+
+**In auditorium.**
+
+* **First speaker of the day: Dr. Harwinder Singh** 
+
+Dr. Harwinder Singh,the ANO of NCC. He introduce us to benefits of joining NCC. He mentioned both physical and mental advantages, explaning that NCC provide army training while also helping us to shape our personality and built confidence and communication skills, teamwork and discipline. benefits of joing NCC-
+
+* SAHARA Scholarship for NCC cadets.
+
+* expenses of uniform, refreshment and camps beared by government.
+
+* Chance to get select in army.
+
+* NCC also provides us life skills.
+
+* **Second speaker of the day:Er. Jasvir Singh Grewal**
   
 
     
