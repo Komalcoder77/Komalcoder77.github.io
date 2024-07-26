@@ -1,9 +1,19 @@
 # Komalcoder77.github.io
+|  My introduction     |            
+| ------------- |
+| I'm Komalpreet kaur.I am from Jagraon. I am student of Btech CSE at gndec,ludhiana. |
+
+| My 10th Marks |  My 12th Marks | 
+| ------------- |:------------|
+| 85.5% | 88.8% |
+
 # Induction program 2024
 ## Day-1 Date-10.07,2024
+
 On the first day we arrived at 10 o'clock at College Gurudwara sahib. A very soothing kirtan was going on there. Shri Anand sahib was also recited there. After kirtan and Shri Anand Sahib there was a prayer for starting our new session and life. Then we were given refreshment by the college. After this we reached auditorium, we were very warmly welcomed there. we were given some lectures by the speakers of the day. Thus, our first day of college went very well. 
 
 ## Day-2 Date-11.07,2024
+
 * **First speaker of the day: Dr. Arvind Dhingra.**
 
 From sir, we came to know about various clubs of our college.SCIE,TSTE,E2S2,English club,causmic club, ITian club,Live wire club etc.He told us about benifits of joining each and every club.Sir invited 11 girls and 11 boys on stage for a team strategy game.They all introduce themselves. He also tell us about the types of memberships-
@@ -153,9 +163,41 @@ In this lecture of peer intraction by our seniors we learnt about chatGPT.we als
 
 * **First speaker of the day: IOC- mr.Gauravdeep singh.**
 
-His lecture was very inspirational and motivational for all of us. He told his own story of being successful. He really fight a lot with life.
+His lecture was very inspirational and motivational for all of us. He told his own life story . He told us all ups and downs of his life . He told us three lessons of his life. From his story we learnt that everyone's life is full of challanges. We should never give up in life. We should always move forward in life with good thoughts.
 
+* **Second speaker of the day: Er. Lakhvir singh.**
 
+Sir introduce us with CML(center for Multi-Faceted Learning), SAWYAM(Study Webs of Active Learning for Young Aspiring Minds) NPTEL(National Programme on Technology Enhanced Learning).
+
+* **CAUSMIC CLUB**
+
+Members of causmic club introduced us with causmic club and told us to joining causmic club for development of our skills like management, technical, creative etc.
+
+## Day-12 Date-25.07,2024
+
+**On the day Twelfth , we attend classes.**
+
+* UHV
+
+Our UHV class was taken by MK. We complete ch-3 in this lecture. We also revised ch-1,2 in that lecture.
+
+* CANVA
+
+Our senior taught us about graphic designing. They taught us about all tools of canva. that was really very intersting lecture.
+
+*MATH
+
+we gave math test in that lecture.
+
+## Day-13 Date-26.07,2024
+
+* **First speaker of the day: Meditation Counseller & Homeopathic practitioner Dr.kanwalpreet Kaur Bhatt.**
+
+Mam gave us lecture on meditation. Mam told us about posture for Meditation. we also watch a video of few minutes. Meditation help us to become free from any disease, depression and anxiety. we did meditation for 15 mintues. We feel very good after doing meditation.
+
+* **Singing and Dancing competition**
+
+students of first year take part in Singing and Dancing competition. All the performers did very well. we enjoy a lot on the last day of our INDUCTION PROGRAM.
 
 
 
