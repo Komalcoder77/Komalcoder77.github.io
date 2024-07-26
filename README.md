@@ -123,13 +123,39 @@ she introduced us to "The journey from campus to corporate and building of futur
 
 Dr. Jaswinder singh, he is incharge of IAPT. He has great personality. He tells us meaning of **"SAT SHRI AKAL"**. He taught us that how everything in the world is connected to Mathematics. His lecture was so interesting and valuable for us. He also gave us trick to remember the number of bones in our body "26,27,28". He taught the concept of conduction and induction, Sound with doing praticals. He also taught us the easy ways to wrote the table of 8, 118, 1118. concepts of science and mathematics are tough to understand but he made them easy to learn and remember.
 
+* **Department visit**
+
+We visited our department **Department of Computer Science And Engineering** and HoD of our department is **Dr. Kiran Jyoti** . In beginning, professors told us the history and achievements of our department.Department of Computer Science and Engineering was established in year 1997. They introduced us about the clubs of our department * CSI and * data science club. they also told us the mission of our department is to provide computer education to the empower youth of rural communities.The professors also provide details about Training and Placement Cells. They also told about examinations and marking scheme. we visited computer labs also.
+
 ## Day-9 Date-22.07,2024
 
 * **First speaker of the day: Er. Dr. S.B singh.**
 
 Sir asked us to wrote all about ourselves like Name, course, section, parents name, phn no., mail ids, dream of life etc. Beyond this, he also taught very meaningful lessions. 
 
-* **Second  speaker of the day: Er. Dr. S.B singh.**
+* **Second  speaker of the day: Dr. Pushpinder singh.**
+
+this session with sir was very informative for us. He shared some useful and valuable life lessons with us. sir said if we want to achieve something in our life we should have a strong desire. we can achieve success with focus and full concentration. Sir also said that we should have faith in God and belive in ourselves. he also advised us to be like a bamboo tree who bend during flood while other tree get destroyed. This shows being flexible like bamboo tree  will help us to face and fight big problems in life.
+
+## Day-10 Date-23.07,2024
+
+**On the day tenth, we attend classes.**
+
+* BASICS OF CHEMISTRY
+
+our chemistry class was take by sir K.B. we learn basics of organic chemistry, inorganic chemistry, physical chemistry. We studied with great interest in that class.
+
+* PEER INTRACTION- TECHNICAL
+
+In this lecture of peer intraction by our seniors we learnt about chatGPT.we also learn about machine learning. They guide us for our good. we also learn about Excel in that lecture.
+
+## Day-11 Date-24.07,2024
+
+* **First speaker of the day: IOC- mr.Gauravdeep singh.**
+
+His lecture was very inspirational and motivational for all of us. He told his own story of being successful. He really fight a lot with life.
+
+
 
 
 
