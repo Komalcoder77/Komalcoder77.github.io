@@ -104,8 +104,37 @@ Dr. Harwinder Singh,the ANO of NCC. He introduce us to benefits of joining NCC. 
 
 * NCC also provides us life skills.
 
-* **Second speaker of the day:Er. Jasvir Singh Grewal**
+* **Second speaker of the day: Er.Jasvir Singh Grewal**
+He discussed about NSS (National Service Scheme).He introduced us the with works done by NSS. NSS volunteers work on education, health, environment conversation,awareness and social justice. joining NSS doesnot mean only to help others but it is also develop skills and qualities in life.Joining NSS help us to build self-confidence,patience,positive attitude. There are so many social works done by NSS.these are:-
+
+1.Afforestation
+
+2.blood donation camps
+
+3.cleaniness of environment and many more.
+
+## Day-8 Date-19.07,2024
+
+* **First speaker of the day: Er. Kanwardeep Kalra.**
+
+she introduced us to "The journey from campus to corporate and building of future beyond classrooms." she also talk about soft skills. Soft skills are personal attributes that enable someone to interact effectively. Example of soft skills are Critical thinking, Time management, Problem solving, Communication etc. Soft skills are aslo important as technical skills are in our life. She also organised a play with our seniors to taught us how to behave and how to answer in front of interviewers.
+
+* **Second speaker of the day: Dr. Jaswinder singh.**
+
+Dr. Jaswinder singh, he is incharge of IAPT. He has great personality. He tells us meaning of **"SAT SHRI AKAL"**. He taught us that how everything in the world is connected to Mathematics. His lecture was so interesting and valuable for us. He also gave us trick to remember the number of bones in our body "26,27,28". He taught the concept of conduction and induction, Sound with doing praticals. He also taught us the easy ways to wrote the table of 8, 118, 1118. concepts of science and mathematics are tough to understand but he made them easy to learn and remember.
+
+## Day-9 Date-22.07,2024
+
+* **First speaker of the day: Er. Dr. S.B singh.**
+
+Sir asked us to wrote all about ourselves like Name, course, section, parents name, phn no., mail ids, dream of life etc. Beyond this, he also taught very meaningful lessions. 
+
+* **Second  speaker of the day: Er. Dr. S.B singh.**
+
+
+
   
 
     
   
+
