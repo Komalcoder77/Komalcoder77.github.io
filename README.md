@@ -6,6 +6,8 @@
 | My 10th Marks |  My 12th Marks | 
 | ------------- |:------------|
 | 85.5% | 88.8% |
+# My excel certificate
+![1](https://github.com/user-attachments/assets/13f48b45-8733-4424-8630-f2964ddc9625)
 
 # Induction program 2024
 ## Day-1 Date-10.07,2024
