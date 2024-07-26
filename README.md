@@ -1,7 +1,7 @@
 # Komalcoder77.github.io
 |  My introduction     |            
 | ------------- |
-| I'm Komalpreet kaur.I am from Jagraon. I am student of Btech CSE at gndec,ludhiana. |
+| I'm Komalpreet kaur.I am from Jagraon. I am student of Btech CSE at gndec,ludhiana. I did my senior secondary education from New Punjab Sen. Sec. Public School, Jagraon |
 
 | My 10th Marks |  My 12th Marks | 
 | ------------- |:------------|
